@@ -2,11 +2,11 @@
 <img width="468" height="60" alt="image" src="https://64.media.tumblr.com/fc6bf4480a59b527beaccfc1aa9301bb/ed0e5f2d4aeeed53-66/s500x750/488d0a69470645ce39e3a6c36a927e96760c5b17.gifv" />
 
 <p align="center">
-<sup> hi this is a ponytown thing ignore if youre not from ponytown !!!!!!! </sup>
+<sup> hi this is a ponytown thing ignore if youre not from ponytown </sup>
 
 <p align="center">
 please WHISPER if u wanna chat because i am offtab 99% of the time so i might miss your messages</br> 
-. . . also i am incredibly awkward around strangers but just bare with me im cool eye swear ! @_@ </p> 
+. . . also i am incredibly awkward around strangers but just bare with me im cool eye swear @_@ </p> 
 
 <p align="center">
 <img width="455" height="25" alt="image" src="https://github.com/user-attachments/assets/d70681dc-654b-4076-a00f-e147f10781f2" />
