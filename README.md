@@ -16,6 +16,9 @@ if you just generally Lack common sense idont know dude just dont be weird or ru
 disrespecting is useless because you will just end up hidden. Lol
 
 . ／l、
+
 （ﾟ､ ｡７
+
 .l、ﾞ~ヽ
+
 .じしf_, )ノ
