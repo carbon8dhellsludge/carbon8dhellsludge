@@ -5,7 +5,7 @@
 <sup> hi this is a ponytown thing ignore if youre not from ponytown </sup>
 
 <p align="center">
-please WHISPER if u wanna chat because i am offtab or spacing out 50/50 of the time so i might miss your messages</br> 
+please WHISPER if u wanna chat because i am offtab or spacing out 50/50 of the time so i might miss your messages !!!</br> 
 . . . also i am incredibly awkward around strangers but just bare with me im cool eye swear @_@ </p> 
 
 <p align="center">
