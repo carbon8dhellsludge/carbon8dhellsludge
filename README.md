@@ -5,8 +5,9 @@
 <sup> hi this is a ponytown thing ignore if youre not from ponytown </sup>
 
 <p align="center">
-please WHISPER if u wanna chat because i am offtab or spacing out 50/50 of the time so i might miss your messages !!!</br> 
-. . . also i am incredibly awkward around strangers but just bare with me im cool eye swear @_@ </p> 
+please whisper 2 int because im oftentimes offtab !!! i might not see u if otherwise</br> 
+. . . also be warned i am downright TERRIBLE in socializing , sorry if it gets awkward -_-" </p> 
+<p align="center"> (i would rather not be talked 2 long-term if im already with someone ,, ) </p>
 
 <p align="center"> i hide freely . dont be a douche ! </p>
 
